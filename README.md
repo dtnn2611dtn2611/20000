@@ -23,4 +23,4 @@
 无论你是初次接触还是资深影迷，这里都是你免费观看日本AV的首选。立即收藏本站，畅享无限精彩资源，体验高清无广告的观影盛宴！
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnn2611dtn2611/20000 ）</span>
